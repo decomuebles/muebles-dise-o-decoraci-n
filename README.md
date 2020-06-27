@@ -1,1 +1,1 @@
-# muebles-dise-o-decoraci-n
+# muebles-decoración
